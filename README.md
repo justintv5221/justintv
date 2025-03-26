@@ -1,9 +1,3 @@
-## ÖRNEK OLARAK BÖYLE OLUYO REİS İSTEDİĞİN GİBİ *DARK*
-
-
-
-
-
 # ⚽ [Barcelona - Osasuna Canlı Maç İzle | HD Yayın | Kesintisiz Yayın 🎥🏆](https://link24.site/JustinTvizle)
 
 📲 **Bizi Sosyal Medyada Takip Edin!** 🔗
