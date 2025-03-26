@@ -1,4 +1,4 @@
-# ⚽ [Barcelona - Osasuna Canlı Maç İzle | HD Yayın | Kesintisiz Yayın 🎥🏆](https://link24.site/JustinTvizle)
+# ⚽ [Barcelona - Osasuna Canlı Maç İzle | HD Yayın | Kesintisiz Yayın 🎥🏆](https://bjjsgc.com/)
 
 📲 **Bizi Sosyal Medyada Takip Edin!** 🔗
 
